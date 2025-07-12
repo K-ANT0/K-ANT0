@@ -1,6 +1,5 @@
   -> ![art by oogypng / .co/angelicyearner / seen this angel? / graphic made by me](https://file.garden/Zzgv69nzzkEeNTVf/binamain.png) <-
 
--> [pinterest](https://www.pinterest.com/angelicyearner/) 　 [server](https://discord.gg/SkZenJhrGh) 　 [inquiries](https://tellonym.me/angelicyearner) <-
 
 -> ![](https://files.catbox.moe/uhokfa.gif) ⠀ [pixels](/aypixel) 　 [dividers](https://www.pinterest.com/angelicyearner/resources/borders/) 　 [pngs](https://www.pinterest.com/angelicyearner/resources/pngs/) 　 [frames](https://www.pinterest.com/angelicyearner/resources/frames/) <-
 -> [masks](https://www.pinterest.com/angelicyearner/resources/masks/) 　 [fonts](https://www.pinterest.com/angelicyearner/resources/fonts/) 　 [symbols](/aysymbols) 　 [overlays](https://www.pinterest.com/angelicyearner/resources/overlays-textures/)　![](https://i.postimg.cc/d0WNJrkT/IMG_2665.gif) <-
