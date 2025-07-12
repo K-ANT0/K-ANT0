@@ -1,4 +1,4 @@
- ![rappa so cool; this was actually my first time making one of those like banner shaped graphics i have a love hate relationship](https://files.catbox.moe/fu2n7e.png) [![contact](https://files.catbox.moe/8y2axg.png){70px:100%}](https://rentry.co/sixtyone)　　　　　　　[![links](https://files.catbox.moe/m9wran.png)
+ ![rappa so cool; this was actually my first time making one of those like banner shaped graphics i have a love hate relationship](https://files.catbox.moe/fu2n7e.png) 　　　　　　[!
 ![](https://files.catbox.moe/0vj438.png)  
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
