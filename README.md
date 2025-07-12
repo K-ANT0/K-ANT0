@@ -1,14 +1,10 @@
-![](view)
-![](https://i.postimg.cc/1XBFnK71/top.png)
 
-![](https://i.postimg.cc/3rFmcK8f/graphic.png){520:40%}
-꒷︶꒷꒥⠀name⠀ᵒᵘ⠀!~na~!me⠀![](https://i.postimg.cc/rs2sZDsm/music.gif)⠀*prn* / prn⠀ ₊⠀°⠀。
-age yrs⠀──⠀gender⠀꒰ ![](https://i.postimg.cc/0NK7WDj7/small.png) ꒱ ˚ ๑
-![](https://i.postimg.cc/XqKJRnBg/notes.gif)
-![](https://i.postimg.cc/63dnwKd3/mid.png)}
-![](https://i.postimg.cc/sXh1JYVq/bow.png)⠀⁀➷Ꮺ
-.⠀꒷⠀![](https://i.postimg.cc/TPSpm7Xn/lines.gif)⠀⊹)⠀  -マ
-![](https://i.postimg.cc/zGCyV7yt/btm.png)
+
+
+![](https://i.postimg.cc/3rFmcK8f/graphic.png)
+[](https://i.postimg.cc/rs2sZDsm/music.gif)⠀
+
+
 
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
