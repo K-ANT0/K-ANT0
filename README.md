@@ -1,4 +1,13 @@
-  https://www.pinterest.com/pin/387591111702153446/
+  -> ![art by oogypng / .co/angelicyearner / seen this angel? / graphic made by me](https://file.garden/Zzgv69nzzkEeNTVf/binamain.png) <-
+
+-> [pinterest](https://www.pinterest.com/angelicyearner/) 　 [server](https://discord.gg/SkZenJhrGh) 　 [inquiries](https://tellonym.me/angelicyearner) <-
+
+-> ![](https://files.catbox.moe/uhokfa.gif) ⠀ [pixels](/aypixel) 　 [dividers](https://www.pinterest.com/angelicyearner/resources/borders/) 　 [pngs](https://www.pinterest.com/angelicyearner/resources/pngs/) 　 [frames](https://www.pinterest.com/angelicyearner/resources/frames/) <-
+-> [masks](https://www.pinterest.com/angelicyearner/resources/masks/) 　 [fonts](https://www.pinterest.com/angelicyearner/resources/fonts/) 　 [symbols](/aysymbols) 　 [overlays](https://www.pinterest.com/angelicyearner/resources/overlays-textures/)　![](https://i.postimg.cc/d0WNJrkT/IMG_2665.gif) <-
+
+-> **recommended⠀sites:**  ⠀ [/ulzzang](/ulzzang) 　 [/maisiesrsrcs](/maisiesrsrcs) 　 [/resource](/resource)  　 [/resources](/resources) 　 [/rsrc](/rsrc) 　 [/rsrcs](/rsrcs) 　 [/1lia (a moot!)](/1lia) <-
+
+-> ![div is mine](https://file.garden/Zzgv69nzzkEeNTVf/binabottom.png) <-
 
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
