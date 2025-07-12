@@ -1,4 +1,4 @@
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=e76d7c)  
+![ view by kant counter on GitHub](https://komarev.com/ghpvc/?username=kagefumiw&color=e76d7c)  
 ![rappa so cool; this was actually my first time making one of those like banner shaped graphics i have a love hate relationship](https://files.catbox.moe/fu2n7e.png) 　　　　
 ![](https://files.catbox.moe/0vj438.png)  
 <!--
