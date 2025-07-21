@@ -2,7 +2,7 @@
  
  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
 
-
+<img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
 ![rappa so cool; this was actually my first time making one of those like banner shaped graphics i have a love hate relationship](https://files.catbox.moe/fu2n7e.png) 　　　　
 
