@@ -4,9 +4,9 @@
 
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
-![rappa so cool; this was actually my first time making one of those like banner shaped graphics i have a love hate relationship](https://files.catbox.moe/fu2n7e.png) 　　　　
+![i am silly](https://i.postimg.cc/WbgSryfZ/Untitled2042-20240412132618.png)
 
-![](https://files.catbox.moe/0vj438.png)  
+
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
