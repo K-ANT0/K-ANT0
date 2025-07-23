@@ -1,4 +1,4 @@
- <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">please follow my github
+ <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
  
  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
 
