@@ -1,5 +1,4 @@
-![img](https://i.imgur.com/Eu0jJu6.gif)  
- <img width="160" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
+<img width="160" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">![](https://files.catbox.moe/x67mmg.gif) 
 
 🌹github dark mode for better viewing 👇
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
