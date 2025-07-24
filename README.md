@@ -1,15 +1,13 @@
-----K--------A------------------N--------------------T-------------------0----------------------
-
 <img width="160" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
 
 ![](https://files.catbox.moe/x67mmg.gif)    
 🌹github dark mode for better viewing 👇
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
-----K--------A------------------N--------------------T-------------------0----------------------
-[![](https://i.postimg.cc/BvDH6Nb1/mikugraphic.png)](https://x.com/ilonika666/status/1805937084537958612)　[![](https://i.postimg.cc/MGKGJNzZ/acb55dd0.gif)](evade)
+
+![](https://files.catbox.moe/bdh5eu.png)
  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
-　
+![](https://files.catbox.moe/62ot9h.png)
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
