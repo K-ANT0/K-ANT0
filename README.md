@@ -4,7 +4,7 @@
 🌹github dark mode for better viewing 👇
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
-![i am silly](https://i.postimg.cc/WbgSryfZ/Untitled2042-20240412132618.png)
+![i am silly](https://i.postimg.cc/WbgSryfZ/Untitled2042-20240412132618.png)  
 
  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
 <!--
