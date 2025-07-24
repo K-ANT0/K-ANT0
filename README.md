@@ -1,6 +1,5 @@
- <img width="140" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
- 
- [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
+![img](https://i.imgur.com/Eu0jJu6.gif)  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
+ <img width="160" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
 
 🌹github dark mode for better viewing 👇
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
