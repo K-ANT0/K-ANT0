@@ -1,4 +1,4 @@
-![img](https://i.imgur.com/Eu0jJu6.gif)  [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
+![img](https://i.imgur.com/Eu0jJu6.gif)  
  <img width="160" src="https://komarev.com/ghpvc/?username=your-github-username&color=3575b0" alt="views count">
 
 🌹github dark mode for better viewing 👇
@@ -6,7 +6,7 @@
 
 ![i am silly](https://i.postimg.cc/WbgSryfZ/Untitled2042-20240412132618.png)
 
-
+ [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)
 <!--
 **K-ANT0/K-ANT0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
