@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/x67mmg.gif)
 
- [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/) •         [rentry](https://rentry.co/kanto) •        [straw](https://kanto.straw.page/)
+   [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)     ♪        [rentry](https://rentry.co/kanto)    ♪       [straw](https://kanto.straw.page/)
     
 <img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
