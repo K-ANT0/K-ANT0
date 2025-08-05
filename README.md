@@ -5,8 +5,8 @@
 
    [𝙰𝚝𝚊𝚋𝚘𝚘𝚔](https://k-ant.atabook.org/)     ♪        [rentry](https://rentry.co/kanto)    ♪       [straw](https://kanto.straw.page/)
     
-<img src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
 
 ![](https://files.catbox.moe/151700.png#left) ![](https://files.catbox.moe/bi8riv.png)
 ![](https://pokemon.fandom.com/wiki/Gladion)![](https://besit.fandom.com/ru/wiki/Пик)![](https://en.m.wikipedia.org/wiki/Erotomania) ![](https://en.m.wikipedia.org/wiki/Hypersexuality)![](https://www.japandict.com/リアコ) 
 
+<img width='590' src="https://raw.githubusercontent.com/eric-py/eric-py/output/snake.svg" alt="Snake animation" />
