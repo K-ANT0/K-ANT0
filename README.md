@@ -6,5 +6,5 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[ATABOOK](https://k-ant.atabook.org/)⠀or main [RENTRY](https://rentry.co/kanto)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://k-ant.atabook.org/)⠀or main [RENTRY](https://rentry.co/kanto)
 ⠀⠀⠀⠀
