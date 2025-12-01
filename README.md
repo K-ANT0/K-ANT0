@@ -6,5 +6,5 @@
 ![by @aesopps on twitter](https://files.catbox.moe/xyo4p3.gif#left)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://k-ant.atabook.org/)⠀or main [RENTRY](https://rentry.co/kanto)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://k-ant.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
 ⠀⠀⠀⠀
