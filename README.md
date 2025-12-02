@@ -1,6 +1,6 @@
-
-  ⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&color=aacc8f&label=help)
-<p align="center"
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
+![](https://komarev.com/ghpvc/?username=K-ANT0&style=plastic&color=000000&label=_　🍁　view　&base=999999999999999)
+  ⠀⠀⠀⠀⠀⠀⠀
 
 
 ![Fanart of Aotsuki Eito from Hundred Line by okdswts on Twitter.](https://i.postimg.cc/Cx7rBkft/Gptdycxa-MAAf-Rm-S-cropped-3.png#left)
