@@ -4,5 +4,5 @@
 ![](https://64.media.tumblr.com/02cd56ffed66d53bef58318947e03611/8c864423e7d573bc-58/s500x750/ef522c844cfdb2429f566cecb1524fa38b428ba5.webp)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://k-ant.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://kanto.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
 ⠀⠀⠀⠀
