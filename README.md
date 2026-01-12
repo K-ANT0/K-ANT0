@@ -6,7 +6,7 @@
 
 
 ![](https://files.catbox.moe/9jpjyb.png)
-by:[she](https://youtube.com/@syaw_xd?si=mAU86gxkqMiuS9f_)
+by:[syaw](https://youtube.com/@syaw_xd?si=mAU86gxkqMiuS9f_)
 
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀[ATABOOK](https://kanto.atabook.org/)⠀or main [RENTRY](https://rentry.co/xinchaooomf)
