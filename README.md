@@ -1,2 +1,1 @@
-:)
-![](https://files.catbox.moe/jtcole.png)
+![](https://files.catbox.moe/iricjo.png)
