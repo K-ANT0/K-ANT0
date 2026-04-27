@@ -17,29 +17,6 @@
 
 ---
 
-### 💖 The Soulmates
-<table border="0">
-  <tr>
-    <td align="center">
-      <a href="https://github.com/K-ANT0">
-        <img src="https://github.com/user-attachments/assets/3d7a4088-2355-4b74-837e-57088a7622dd" width="60px" style="border-radius:60px;" alt="My Pony"/><br />
-        <sub><b>[Kant]</b></sub>
-      </a>
-    </td>
-    <td align="center">
-      <img src="https://raw.githubusercontent.com/Tarikul-Islam-Anik/Animated-Fluent-Emojis/master/Emojis/Smilies/Two%20Hearts.png" width="60px" />
-    </td>
-    <td align="center">
-      <a href="https://github.com/DUETDUCK">
-        <img src="https://files.catbox.moe/e5il7f.gif" width="60px" style="border-radius:20px;" alt="Soulmate Pony"/><br />
-        <sub><b>[Vogel Jena 😘]</b></sub>
-      </a>
-    </td>
-  </tr>
-</table>
-
----
-
 ### 🗓️ Memorable milestones
 | Day month | Event 🐾 |
 | :--- | :--- |
@@ -57,6 +34,18 @@
 
 ### 🎀 common hobby 
 `Game : ponytown` • `Design Skins` • `listening to music`
+
+</div>
+<div align="center">
+
+## 🎀 Our Pony Skins 🎀
+
+| My Pony | My Soulmate |
+| :---: | :---: |
+| <a href="LINK_TRANG_CỦA_BẠN"><img src="assets/skin1.png" width="120" alt="Skin 1"></a> | <a href="LINK_TRANG_NGƯỜI_ẤY"><img src="assets/skin2.png" width="120" alt="Skin 2"></a> |
+| **[K-ANT0]** | **[DUETDUCK]** |
+
+<img src="https://img.shields.io/badge/Status-Together-ff69b4?style=flat-square&logo=heart" />
 
 </div>
  
