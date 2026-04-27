@@ -33,19 +33,20 @@
 ---
 
 ### 🎀 common hobby 
-`Game : ponytown` • `Design Skins` • `listening to music`
+`Game : ponytown` • `Design Skins` • `listening to music`•`favorite character : MIKU 🫒` 
 
 </div>
 <div align="center">
 
-## 🎀 Our Pony Skins 🎀
+## 🎀 Share your favorite character 🎀
 
 | My Pony | My Soulmate |
 | :---: | :---: |
-| <a href="LINK_TRANG_CỦA_BẠN"><img src="assets/skin1.png" width="120" alt="Skin 1"></a> | <a href="LINK_TRANG_NGƯỜI_ẤY"><img src="assets/skin2.png" width="120" alt="Skin 2"></a> |
+| <a href="https://github.com/user-attachments/assets/9ad13946-0a08-4bce-8c17-1049fe429b82">  <img width="100" height="100" alt="Image" src="https://github.com/user-attachments/assets/9ad13946-0a08-4bce-8c17-1049fe429b82" /></a> | <a href="https://github.com/DUETDUCK"><img src="https://github.com/user-attachments/assets/e6472152-19aa-4800-859b-7109f20ed762" width="90" alt="Skin 2"></a> |
 | **[K-ANT0]** | **[DUETDUCK]** |
 
 <img src="https://img.shields.io/badge/Status-Together-ff69b4?style=flat-square&logo=heart" />
 
 </div>
- 
+<div align="center">
+
