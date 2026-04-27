@@ -28,7 +28,7 @@
 
 
 
-> "No matter how many people there are in the world, I will still find you." 🌈
+> ""We met through the screen, but understood each other through everyday conversations. Thank you, virtual world, for bringing me such a genuine friendship."" 🌈
 
 ---
 
