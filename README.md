@@ -6,7 +6,7 @@
   <img src="https://github.com/DUETDUCK.png" width="100px" style="border-radius:50%;" alt="kant">
 </a>
 
- kant ' viet ⠀         　 　　　　　　　 ⠀ jen ' viet
+ 
   
 <div align="center">
 
