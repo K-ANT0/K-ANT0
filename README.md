@@ -28,7 +28,7 @@
 
 
 
-> ""We met through the screen, but understood each other through everyday conversations. Thank you, virtual world, for bringing me such a genuine friendship."" 🌈
+> "We met through a screen, but understood each other through everyday conversations. Thank you, virtual world, for bringing me such a "real" friendship." 🌈
 
 ---
 
@@ -38,7 +38,7 @@
 </div>
 <div align="center">
 
-## 🎀 Share your favorite character 🎀
+## 🎀 Sharing my favorite character costumes and Jen's 🎀
 
 | My Pony | My Soulmate |
 | :---: | :---: |
