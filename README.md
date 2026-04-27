@@ -6,6 +6,7 @@
   <img src="https://github.com/DUETDUCK.png" width="100px" style="border-radius:50%;" alt="kant">
 </a>
 
+ kant ' viet ⠀         　 　　　　　　　 ⠀ jen ' viet
   
 <div align="center">
 
@@ -20,7 +21,7 @@
 ### 🗓️ Memorable milestones
 | Day month | Event 🐾 |
 | :--- | :--- |
-| **?/?/2023** |We met by chance in Vietnam late one night 😴|
+| **?/?/2023** |We met by chance in Vietnam late one night 😴 ( in ponytown)|
 | **?/?/2024** | We started to become close friends 💝 |
 | **27/04/2026** | Create a README celebrate friendship 💌 |
 
@@ -50,3 +51,4 @@
 </div>
 <div align="center">
 
+### I will update you with more information soon. 🍥
