@@ -1,3 +1,4 @@
+<p align=center> <img src=https://komarev.com/ghpvc/?username=K-ANT0&color=61a982&style=plastic&label=(⁠ﾉﾟ⁠0ﾟ⁠)👉>
 
 <p align="center">
 
