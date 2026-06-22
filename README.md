@@ -2,5 +2,9 @@
 <p align="center">
 
   ![](https://files.catbox.moe/ic478g.png)
-  ![](https://files.catbox.moe/juo8ui.png)
-</p>
+<p align="center">
+  <img src="https://files.catbox.moe/pgauas.gif" width="200"> 
+</p> 
+
+ ![](https://files.catbox.moe/juo8ui.png)
+</p> 
