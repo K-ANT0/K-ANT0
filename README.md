@@ -6,7 +6,7 @@
   <img src="https://files.catbox.moe/jatssf.png" width="300"> 
 </p> <p align="center">
    <a href="https://kanto.atabook.org/">
-    <img src="https://files.catbox.moe/jqddtb.png" width="200" alt="">
+    <img src="https://files.catbox.moe/jqddtb.png" width="150" alt="">
   </a>
 </p>
 
