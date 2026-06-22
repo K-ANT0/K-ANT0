@@ -1,7 +1,9 @@
 
 <p align="center">
-  
-</p> 
+
+  ![](https://komarev.com/ghpvc/?username=K-ANT0&style=plastic&color=68a987&label=⠀⠀_(☉⁠｡⁠☉⁠)⁠!👉　&base=9000000000000000)
+ 
+ <p align="center">
 
 <p align="center">
 
